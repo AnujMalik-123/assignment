@@ -1,3 +1,8 @@
+![Screenshot 2025-01-02 233234](https://github.com/user-attachments/assets/77896708-25eb-42af-b09d-23eb37a74c94)
+
+
+https://github.com/user-attachments/assets/fc7a7e2d-5cea-4b07-989a-f9f9caa881e0
+
 Title : Indian Agriculture Analytics
 
 # Overview
